@@ -1,6 +1,6 @@
-## Its_Me_Amal🥰
+## Its me Vasu
 
-<img src=https://www.linkpicture.com/q/IMG-20210629-WA0181.jpg>
+<img src=>
 
 
 Thank you Everyone for helping to develop this one🦋
